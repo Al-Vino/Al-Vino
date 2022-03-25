@@ -10,4 +10,4 @@
 
 🌟 Twitter : [Klik Disini](https://mobile.twitter.com/AdjAlvino)<<<
 
-🌟 Email : [Klik Disini](https://gmail.com/alvinoadj22)<<<
+🌟 Email : [Klik Disini](https://alvinoadj22@gmail.com)<<<
