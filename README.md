@@ -1,3 +1,6 @@
+### ASSALAMUALAIKUM ###
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=000AF7&lines=WELCOME+TO+MY+GITHUB+PROFILE)](https://git.io/typing-svg)
+
 ### FOLLOW MY SOSMED ###
 
 🌟 Facebook : [Klik Disini](https://Facebook.com/legend.alvino)<<<
