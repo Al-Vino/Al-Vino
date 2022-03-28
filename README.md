@@ -1,7 +1,7 @@
 ### ASSALAMUALAIKUM ###
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?color=000AF7&lines=WELCOME+TO+MY+GITHUB+PROFILE)](https://git.io/typing-svg)
-
-### FOLLOW MY SOSMED ###
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=F72EEF&lines=Handsome+People+%3A+Al-Vino+Adijaya)](https://git.io/typing-svg)
+### CONTACTS & MY SOSMED ###
 
 🌟 Facebook : [Klik Disini](https://Facebook.com/legend.alvino)<<<
 
