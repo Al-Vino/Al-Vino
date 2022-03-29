@@ -13,4 +13,4 @@
 
 🌟 Twitter : [Klik Disini](https://mobile.twitter.com/AdjAlvino)<<<
 
-🌟 Email : [Klik Disini](https://alvinoadj22@gmail.com)<<<
+🌟 Website : [Don't Klik](https://xnxx.com)<<<
