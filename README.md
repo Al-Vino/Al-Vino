@@ -2,8 +2,7 @@
 <p align="center">
 <!--   <a href="https://github.com/DenverCoder1/readme-typing-svg"> -->
     <img src="https://readme-typing-svg.herokuapp.com?color=E22FE4&width=380&height=45&lines=Welcome+To+My+Github;You+Know+Who+Is+Handsome;Al+Vino+Adijaya;Nice+To+Meet+You+...&center=true"></a>
-
-</p>
+<h1 align="center">★ ANIME GIFT ★</i></b></h3>
 <h1 align="center"><img src="https://raw.githubusercontent.com/Al-Vino/Al-Vino/main/giphy.webp"
 <h1 align="center"><img src="https://raw.githubusercontent.com/Al-Vino/Al-Vino/main/giphy%20(1).webp"
 <h1 align="center">★ STATISTICS ★</i></b></h3>
